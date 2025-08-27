@@ -1,0 +1,1 @@
+pedut adalah tai
